@@ -2,4 +2,4 @@
 hi liupeng
 
 No man is born with hardship.
-Don't forget your heart and do yourself well. 
+No one is born, only hardworking.
