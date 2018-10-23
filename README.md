@@ -1,4 +1,5 @@
 # hollow-word
 hi liupeng
 
-hollow word
+No man is born with hardship.
+Don't forget your heart and do yourself well. 
